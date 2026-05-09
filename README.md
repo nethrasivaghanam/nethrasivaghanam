@@ -20,5 +20,5 @@
 🔹 E-commerce Website  
 
 ## Contact Me
-📧 Your email here
-💼 LinkedIn profile here
+📧 nethrasivaghanam2003@gmail.com
+💼 https://www.linkedin.com/in/nethra-sivaghanam-614969341/
